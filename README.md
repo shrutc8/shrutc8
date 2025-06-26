@@ -1,5 +1,5 @@
 # 💫 About Me:
-My name is Shrut Chokshi and I am a grade 11 AP student, aspirant in the Computer Engineering discipline.
+My name is Shrut Chokshi and I am a grade 12 AP and ICT SHSM student, aspirant in the Computer Engineering discipline.
 
 
 ## 🌐 Socials:
